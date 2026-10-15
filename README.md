@@ -3,7 +3,8 @@
 <img width="1500" height="338" alt="tumblr_45e2b5c5476383503a2fce2d6c4f7177_e4cba397_2048" src="https://github.com/user-attachments/assets/566ff851-b41a-4cad-b812-d04be68cd019" />
 
 
-<img width="471" height="330" alt="Pi7_Gif" src="https://github.com/user-attachments/assets/ddaf4dfd-b30d-4ba0-8c17-7b5d730dc976" />
+
+<img width="471" height="330" alt="646491012-ddaf4dfd-b30d-4ba0-8c17-7b5d730dc976" src="https://github.com/user-attachments/assets/c726b23d-621f-4200-b16f-9d5103942fb3" />
 
 310: ΩΣPx0(2^18×5^18)p*k*k*k — 3.343 quindecillion years (3.343 × 10^48 years).
 
@@ -34,8 +35,7 @@ i love google
 
 <img width="1500" height="338" alt="image (3)" src="https://github.com/user-attachments/assets/50ec74bc-fdee-4548-bda0-cfdeb928d6f4" />
 
-$$\color{black}{\text{yells}}$$   
-$$\color{white}{\text{this took long😠 more of these thingy's}}$$  
+
 
 
 <img width="99" height="56" alt="ddacm70-1ca761e7-da66-498f-987c-877672d80906" src="https://github.com/user-attachments/assets/9d36d0d4-6aa0-4896-964b-5ce0a3cdc241" />
@@ -88,8 +88,10 @@ $$\color{white}{\text{this took long😠 more of these thingy's}}$$
 
 
 
-https://github.com/user-attachments/assets/da3f2a28-5d67-4bcd-9b9f-b6f3b58ea9f9
+<div align="center">
 
-$$\color{black}{\text{gudbye😢}}$$
 
-h
+<img width="575" height="392" alt="Screenshot 2026-10-15 132032" src="https://github.com/user-attachments/assets/a0f527b9-2c6a-46ca-8cb7-c245bfbf5530" />
+
+
+bro this shit removed some of the stuff😔and i cannot fix it back
