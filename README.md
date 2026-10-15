@@ -94,4 +94,4 @@ i love google
 <img width="575" height="392" alt="Screenshot 2026-10-15 132032" src="https://github.com/user-attachments/assets/a0f527b9-2c6a-46ca-8cb7-c245bfbf5530" />
 
 
-bro this shit removed some of the stuff😔and i cannot fix it back
+water exploded on me
