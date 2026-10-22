@@ -91,7 +91,12 @@ i love google
 <div align="center">
 
 
-<img width="575" height="392" alt="Screenshot 2026-10-15 132032" src="https://github.com/user-attachments/assets/a0f527b9-2c6a-46ca-8cb7-c245bfbf5530" />
 
 
-water exploded on me
+https://github.com/user-attachments/assets/61867941-fae9-4684-a07b-9ef8782df407
+
+
+
+
+
+
