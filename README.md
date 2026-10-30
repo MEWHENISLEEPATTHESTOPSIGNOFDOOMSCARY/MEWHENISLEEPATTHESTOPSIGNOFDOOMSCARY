@@ -100,3 +100,5 @@ https://github.com/user-attachments/assets/61867941-fae9-4684-a07b-9ef8782df407
 
 i'm sorry what the fuck🥹
 
+
+hi hi can you follow my x/twitter🥺 --- https://x.com/leglessand0i
